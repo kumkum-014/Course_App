@@ -102,8 +102,8 @@ course-app/
 
 ## 📬 Contact
 
-**Created By:** Kavya Varshney
-📧 Email: \[[KvVarshney\kvvarshney75@gmail.com](mailto:kvvarshney75@gmail.com)]
-🔗 LinkedIn: [linkedin.com/in/kavya-varshney](https://www.linkedin.com/in/kavya-varshney-658803327/)
+**Created By:** Kumkum
+📧 Email: kumkumrajput532@gmail.com
+
 
 ---
